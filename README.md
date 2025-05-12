@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## When one tugs at a single thing in nature, he finds it attached to the rest of the world. - John Muir
+    ## We must learn our limits. We are all something, but none of us are everything. - Blaise Pascal
