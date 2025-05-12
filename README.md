@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## We must learn our limits. We are all something, but none of us are everything. - Blaise Pascal
+    ## Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past! - Charlotte Perkins Gilman
