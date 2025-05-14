@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past! - Charlotte Perkins Gilman
+    ## Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world. - Margaret Laurence
