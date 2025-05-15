@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world. - Margaret Laurence
+    ## I am always doing that which I cannot do, in order that I may learn how to do it. - Pablo Picasso
