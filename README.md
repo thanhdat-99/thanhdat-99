@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Life is a learning experience, only if you learn. - Yogi Berra
+    ## You give before you get. - Napoleon Hill
