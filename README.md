@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## You give before you get. - Napoleon Hill
+    ## You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions. - Naguib Mahfouz
