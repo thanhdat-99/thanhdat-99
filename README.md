@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Success is not final; failure is not fatal: it is the courage to continue that counts. - Winston Churchill
+    ## The important thing is this: to be able at any moment to sacrifice what we are for what we could become. - Charles Du Bos
