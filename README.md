@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## I know not age, nor weariness nor defeat. - Rose Kennedy
+    ## A lie gets halfway around the world before the truth has a chance to get its pants on. - Winston Churchill
