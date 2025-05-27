@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow. - Rachel Carson
+    ## Friendship is the marriage of the soul, and this marriage is liable to divorce. - Voltaire
