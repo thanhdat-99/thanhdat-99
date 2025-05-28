@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Friendship is the marriage of the soul, and this marriage is liable to divorce. - Voltaire
+    ## Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so. - Douglas Adams
