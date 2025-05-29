@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Humanity is acquiring all the right technology for all the wrong reasons. - Buckminster Fuller
+    ## Adopt the pace of nature: her secret is patience. - Ralph Waldo Emerson
