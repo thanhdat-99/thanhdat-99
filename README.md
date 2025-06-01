@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Peace begins with a smile. - Mother Teresa
+    ## Life is like a sewer. What you get out of it depends on what you put into it. - Tom Lehrer
