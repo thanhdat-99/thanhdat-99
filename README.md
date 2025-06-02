@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Life is like a sewer. What you get out of it depends on what you put into it. - Tom Lehrer
+    ## How wonderful it is that nobody need wait a single moment before starting to improve the world. - Anne Frank
