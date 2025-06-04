@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## How wonderful it is that nobody need wait a single moment before starting to improve the world. - Anne Frank
+    ## If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success. - John Locke
