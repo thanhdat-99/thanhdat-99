@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish. - Ovid
+    ## Nobody made a greater mistake than he who did nothing because he could do only a little. - Edmund Burke
