@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## No valid plans for the future can be made by those who have no capacity for living now. - Alan Watts
+    ## If you owe the bank $100 that's your problem. If you owe the bank $100 million, that's the bank's problem. - J. Paul Getty
