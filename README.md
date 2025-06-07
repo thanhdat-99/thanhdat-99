@@ -13,4 +13,4 @@
 - ⚡ Fun fact: ...
 -->
 
-    ## Nobody made a greater mistake than he who did nothing because he could do only a little. - Edmund Burke
+    ## No valid plans for the future can be made by those who have no capacity for living now. - Alan Watts
